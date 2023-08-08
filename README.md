@@ -7,3 +7,6 @@ Im not copying any of your assets. All assets made by me to look like minecraft,
 
 ****Replit Version (Better)****
 https://replit.com/@InQualitySnixf/Minecraft-Copy
+
+# Broken :(
+This is now a brokey. Isnt working and im lazy to make another time. You can try tho. Some times it works.
